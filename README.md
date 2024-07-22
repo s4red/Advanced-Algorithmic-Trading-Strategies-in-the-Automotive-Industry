@@ -1,0 +1,1 @@
+# Advanced-Algorithmic-Trading-Strategies-in-the-Automotive-Industry
